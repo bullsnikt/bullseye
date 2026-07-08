@@ -1,13 +1,13 @@
-<p align="center">
-<img src="x">
+
+
 
 <p align="center">
 <img src="https://64.media.tumblr.com/4d34567baa1f87c79a7ebb3414e6cae2/16e1ea0d8ffc1b79-b0/s2048x3072/89c71a8ebb32bfe0e78a3dd563c4a25c3199c66f.gifv"">
-
 <p align="center"
 
 [W.I.P](hi.com) ‧ [W.I.P](hhi.com) ‧ [ATABOOK](https://dex.atabook.org/)
 </p>
-
+<br>
 <p align="center">
-<img src="x">
+<img src="https://64.media.tumblr.com/fb3e7947466d9ac0090bd5c07ad18cda/16e1ea0d8ffc1b79-f1/s400x600/be199deaf4e3d6787f2efeff476d152197b61c58.jpg">
+
